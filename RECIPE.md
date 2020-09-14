@@ -12,3 +12,5 @@
 6.When the pan is hot enough, pour a ladleful of batter on the pan for each pancake. Cook until bubbles appear on the face of the pancake.
 
 7.Carefully flip the pancake and cook until its golden brown.
+
+Very Good!!! You have made your DELICIOUS PANCAKES!!!🤩🤗
